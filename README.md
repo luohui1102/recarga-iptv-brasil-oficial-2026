@@ -29,7 +29,7 @@ A ativação é simples e rápida:
 Acesse a página oficial de planos:
 
 🔗 **Planos IPTV Brasil**  
-https://filmevip.com/planos-iptv-brasil/
+https://filmevip.com/melhor-app/
 
 ---
 
@@ -39,23 +39,23 @@ Ativação automática via Pix para os principais apps IPTV disponíveis no Bras
 
 ### NexaTV – IPTV com canais ao vivo
 🔗 Recarga NexaTV  
-https://filmevip.com/iptv/recarga-nexatv/
+https://filmevip.com/recarga-nexatv/
 
 ### UniTV – IPTV premium para Smart TV
 🔗 Recarga UniTV  
-https://filmevip.com/iptv/recarga-unitv/
+https://filmevip.com/recarga-unitv/
 
 ### NexoCine – filmes e séries em 4K
 🔗 Recarga NexoCine  
-https://filmevip.com/iptv/recarga-nexocine/
+https://filmevip.com/recarga-nexocine/
 
 ### UniCine – streaming completo
 🔗 Recarga UniCine  
-https://filmevip.com/iptv/recarga-unicine/
+https://filmevip.com/recarga-unicine/
 
 ### FlixxCine – catálogo premium de filmes e séries
 🔗 Recarga FlixxCine  
-https://filmevip.com/iptv/recarga-flixxcine/
+https://filmevip.com/recarga-flixxcine/
 
 ---
 
